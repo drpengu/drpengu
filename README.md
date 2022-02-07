@@ -2,5 +2,4 @@
 - 👀 I’m interested in programming cs:go chairs.
 - 🌱 I’m currently learning C++.
 - 💞️ If you are willing to teach me, I can work on anything!
-- 📫 How to reach me: Autumn!#2673
-
+- 📫 How to reach me: 𝔞𝔲𝔱𝔲𝔪𝔫#2673
